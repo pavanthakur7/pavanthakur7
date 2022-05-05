@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @pavanthakur7
+- 👋 Hi.
 
